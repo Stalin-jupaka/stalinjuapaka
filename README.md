@@ -1,1 +1,1 @@
-# stalinjuapaka
+# stalinjupaka
